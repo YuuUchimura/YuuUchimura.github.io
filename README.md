@@ -1,1 +1,0 @@
-# YuuUchimura.github.io
